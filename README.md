@@ -1,1 +1,1 @@
-A Motion Graphic video about the tiles processing
+Motion Graphic videos
